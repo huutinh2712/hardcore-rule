@@ -45,3 +45,5 @@
 - trongbq  - @tb
 - huyvohcmc - @FULLCLEARONSTAGE
 - andaden - @andaden
+- Tinh - @huutinh2712
+- 
